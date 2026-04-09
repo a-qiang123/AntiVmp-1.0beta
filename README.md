@@ -3,6 +3,8 @@ VMProtect3.5.1反调试爆破之AntiVmp v1.0beta插件
 
 视频号干货分享持续更新中~
 
+qq群: 387430043
+
 看雪课程1 https://www.kanxue.com/book-leaflet-200.htm
 
 看雪课程2 https://www.kanxue.com/book-leaflet-136.htm 
